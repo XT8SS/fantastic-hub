@@ -1,1 +1,1 @@
-# Hub for all personal Fantastic Frontier related sites
+# Hub for all Fantastic Frontier related links and sites
